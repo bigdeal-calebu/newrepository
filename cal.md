@@ -1,4 +1,4 @@
 kampala international unvi
 reg nuimber
 TUSUBIRA CALEBU
-BACHELOR OF COMP
+Bringing new hope
